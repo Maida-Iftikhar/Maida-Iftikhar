@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **Front end Developer projects**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/12-RDwW7zbkaiaUA1nNf20QQEEtNOh0X0/edit?usp=sharing&ouid=106919581198110446006&rtpof=true&sd=true](https://docs.google.com/document/d/12-RDwW7zbkaiaUA1nNf20QQEEtNOh0X0/edit?usp=sharing&ouid=106919581198110446006&rtpof=true&sd=true)
+- 📄Reach me @2000520100039@ietlucknow.ac.in
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
