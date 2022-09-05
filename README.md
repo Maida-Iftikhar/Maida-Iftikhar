@@ -1,4 +1,4 @@
-[[MasterHead]([https://1.bp.blogspot.com/-7A4WynwLsM..](https://gfycat.com/discover/coder-gifs)]
+
 <h1 align="center">Hi 👋, I'm Maida Iftikhar</h1>
 <h3 align="center">Front end web developer. I will just need a cup of 'chai' and silence to work!</h3>
 
